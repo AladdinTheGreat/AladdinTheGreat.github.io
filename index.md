@@ -1,5 +1,4 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+evetryone needs help
+some people mask it
+others project on to others
+some will take everything to the grave with them
